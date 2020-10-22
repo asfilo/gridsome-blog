@@ -23,6 +23,7 @@ Currently working on:
 
 > I love listening to her.
 > It's like hearing the ~~angels~~ devil sing to me. 
+>
 > \- _NKF_
 
 Her father is incredibly lonely cuz he works by himswelf in a small, dingy, unsanitary office and he reaaly wants some "BEER BUDDIES"
