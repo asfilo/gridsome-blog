@@ -21,8 +21,7 @@ Currently working on:
 - Some Bach
 - Guitar
 
-> I love listening to her.
-> It's like hearing the ~~angels~~ devil sing to me. 
+> I love listening to her. It's like hearing the ~~angels~~ devil sing to me. 
 >
 > \- _NKF_
 
