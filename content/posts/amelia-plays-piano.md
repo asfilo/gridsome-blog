@@ -10,23 +10,13 @@ description: This is Amelia's first post about playing the piano
 ---
 Amelia has been taking piano for a long time. Is she good?
 
-
-
 You should hear her.
-
-
 
 ## SHE IS GREAT
 
-
-
 She studies under the great Miles Allen. She can refer you if you like.
 
-
-
 Currently working on:
-
-
 
 - Playing with her feet
 
@@ -34,8 +24,5 @@ Currently working on:
 
 - Guitar
 
-
-
 > I love listening to her.
-
 > It's like hearing the ~~angels~~ devil sing to me. - _Nora Kim Filo_
