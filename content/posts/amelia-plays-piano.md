@@ -14,16 +14,15 @@ You should hear her.
 
 ## SHE IS GREAT
 
-She studies under the great Miles Allen. She can refer you if you like.
+She studies under the great Miles. She can refer you if you like.
 
 Currently working on:
-
 - Playing with her feet
-
 - Some Bach
-
 - Guitar
 
 > I love listening to her.
 > It's like hearing the ~~angels~~ devil sing to me. 
 > \- _NKF_
+
+Her father is incredibly lonely cuz he works by himswelf in a small, dingy, unsanitary office and he reaaly wants some "BEER BUDDIES"
